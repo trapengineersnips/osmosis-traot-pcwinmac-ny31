@@ -1,4 +1,4 @@
-# 
+# Exclusivo osmosis trading bot scripts para Mac OS | Automático osmosis trading bot scripts para PC Windows. Con tamaño de posición y integración de API — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
